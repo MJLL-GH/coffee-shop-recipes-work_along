@@ -4,11 +4,11 @@
 
 ## Ingredients
 
-- 8 oz Cold Brew
-- 1/4 cup of 2% milk
-- 1 Tbsp powdered sugar
-- 1/4 tsp vanilla extract
-- Ice
+- 8 oz Cold Brew.
+- 1/4 cup of 2% milk.
+- 1 Tbsp powdered sugar.
+- 1/4 tsp vanilla extract.
+- Ice.
 
 ## How to Make Vanilla Sweet Cream Cold Foam
 
